@@ -1,1 +1,1 @@
-Edititng my second readme
+Editing my second readme
